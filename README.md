@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dharshinipriya-r
 - 👀 I’m interested in learning new things.
-- 🌱 I’m currently learning Datastructures.
+- 🌱Hobbies: Learning new things from YouTube, Paper Publishing, Exploring GitHub. 
 - 💞️ I’m looking to collaborate on reputed company.
 - 📫 How to reach me - through mail.
 - 😄 Pronouns: She/Her.
